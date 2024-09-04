@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @startuppost
+👋 Hi, I’m @startuppost
